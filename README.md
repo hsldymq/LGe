@@ -1,1 +1,1 @@
-# LGe
+# My Genome
